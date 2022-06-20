@@ -116,5 +116,146 @@
 
 [新氧裁校招生毁offer](https://www.nowcoder.com/discuss/954349)
 
+### 明略科技
 
+临近毕业毁三方。
 
+[脉脉](https://maimai.cn/web/gossip_detail/30420335?src=app&webid=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJlZ2lkIjoiOWQxZDJlNzQwOGE4NDE5YzhhOGM1NTNjNTk4MDRiM2IiLCJpZCI6MzA0MjAzMzUsInUiOjIzMDI3MjIxOX0.w1KPrJDw9eavsONHwIfpM26aZmQS8Wvfz59FwUiseMk&share_channel=5)
+
+### 马蜂窝
+
+临近毕业大规模毁三方。
+
+[2022应届生 马蜂窝毁约](https://www.nowcoder.com/discuss/954386)
+
+[脉脉](https://maimai.cn/web/gossip_detail/30434320?src=app&webid=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJlZ2lkIjoiZGZjOTYxY2VmNjFkNDBmMWE5YzBjODUwMDQwMjQyYTQiLCJpZCI6MzA0MzQzMjAsInUiOjIzMDI3MjIxOX0.d8OSKd6tadOtG_wfB1k3hHhwY3SH8tJD7RBfKrHA8Dc&share_channel=5)
+
+[有马蜂窝组队的好兄弟吗](https://www.nowcoder.com/discuss/944851)
+
+### 58同城
+
+[脉脉](https://maimai.cn/web/gossip_detail/30455417?src=app&webid=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJlZ2lkIjoiNjM3YzM3YTQwOWE1NDdkNzhlZTYyYjVlYTNjM2I4OWEiLCJpZCI6MzA0NTU0MTcsInUiOjIzMDI3MjIxOX0.R72jV1-AjstJQjB7R8e7LVCRfa99lwJpNGoBVEiahgE&share_channel=5)
+
+### 同花顺
+
+[脉脉](https://maimai.cn/web/gossip_detail/30462222?src=app&webid=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJlZ2lkIjoiNGNmZGE3NzliYmMyNDZhN2JkOGMxYzU2NmQ5ZGQzOTAiLCJpZCI6MzA0NjIyMjIsInUiOjIzMDI3MjIxOX0.TnLL_e5pxSy1OdFa-Q7vb-_NT-ZWY_kw0nZheveaeLA&share_channel=5)
+
+### 北森
+
+临近毕业大规模毁三方。22 届前脚刚毁完，后脚招 23 届提前批？
+
+[脉脉](https://maimai.cn/web/gossip_detail/30462016?src=app&webid=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJlZ2lkIjoiYjIzN2FjODUxYjEzNDZhMWIzMWNmMjJiZjg0ZGI2YTYiLCJpZCI6MzA0NjIwMTYsInUiOjIzMDI3MjIxOX0.qOLkpnp6Np-8x0XtAonHYL1vaPs8nsTL5p-knh4TbeQ&share_channel=5)
+
+[北森的嘴脸](https://www.nowcoder.com/discuss/958515)
+
+[北森毁约22届应届生](https://www.nowcoder.com/discuss/958057)
+
+[北森毁22届三方，强制实习后劝退！！！](https://www.nowcoder.com/discuss/958374)
+
+[北森毁约，把学生当枪使](https://www.nowcoder.com/discuss/958501)
+
+### 白山云科技
+
+临近毕业大规模毁三方。
+
+[脉脉](https://maimai.cn/web/gossip_detail/30450961?src=app&webid=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJlZ2lkIjoiODVlZGE3MzkyYzU5NDYxYmIwMDIzMDBkNTEzZWUzYzEiLCJpZCI6MzA0NTA5NjEsInUiOjIzMDI3MjIxOX0.uZb8HOadcgxwHv8GxzmdRX1WJWFTvZjmlLI9eJYbuyc&share_channel=5)
+
+[白山云5月下询违约应届生](https://www.nowcoder.com/discuss/954801)
+
+### 恒泰
+
+[被解约](https://www.nowcoder.com/discuss/957923)
+
+### 容联云
+
+[脉脉](https://maimai.cn/web/gossip_detail/30489193?src=app&webid=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJlZ2lkIjoiMGUxMGVmNzZmMzMwNDJiMWJjNjVlYjg4NjU2YzYwZDciLCJpZCI6MzA0ODkxOTMsInUiOjIzMDI3MjIxOX0.CnZ60Qg2cr8irpL1eWZq1eRWoRtwqVpixMnYzKICSKE&share_channel=5)
+
+### 奇点云
+
+[22后端校招被毁约](https://www.nowcoder.com/discuss/958069)
+
+### 金证科技
+
+[脉脉](https://maimai.cn/web/gossip_detail/30490231?src=app&webid=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJlZ2lkIjoiOTBjY2VjNDA0MjkxNDJkY2FiM2UxNjFmZGY4MDljMTIiLCJpZCI6MzA0OTAyMzEsInUiOjIzNDE2NTQ5N30.PqooLpSjrNz8P8F-uc4fsSMAnOAOb2Q744AvJ3_np5Q&share_channel=5)
+
+### 盛趣游戏
+
+[脉脉](https://maimai.cn/web/gossip_detail/30497694?src=app&webid=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJlZ2lkIjoiY2U1MWY1Y2U5MmUzNDE0Nzg1NWMxZWIyMmE4MGUwYjUiLCJpZCI6MzA0OTc2OTQsInUiOjIzMDI3MjIxOX0.eKWysRz8P0xSkDXRuwdeCGCp3ruVIS-qccR3kuoJ338&share_channel=5)
+
+### 洛凯科技
+
+[5.9号，刚入职一周，三方被毁了。。。。（北京洛凯科技）](https://www.nowcoder.com/discuss/950519)
+
+### 中科创达
+
+[中科创达公司在突然通知解约](https://www.nowcoder.com/discuss/961737)
+
+[中科创达6月毁约](https://www.nowcoder.com/discuss/966349)
+
+[中科创达毁约](https://www.nowcoder.com/discuss/964392)
+
+### 融360
+
+[脉脉](https://maimai.cn/web/gossip_detail/30484373?src=app&webid=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJlZ2lkIjoiNWYyMzM1MjA5ZDhkNDZlNTk4OWU3MDhhYWFhM2IyNDQiLCJpZCI6MzA0ODQzNzMsInUiOjIzMDI3MjIxOX0.t-Nw-KbvUWKacNEVw-MCkk3bJudcgPX03QW2iSBI4Yo&share_channel=5)
+
+### 新华三
+
+[脉脉](https://maimai.cn/web/feed_detail?fid=1735921817&efid=6chEGOiCuh8eYdfj-O0_eQ&share_channel=5&webid=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJ1IjoyMzAyNzIyMTksImZpZCI6MTczNTkyMTgxN30.R7mRNgT71MHEjZbZ4LsiEprvBL_1bjFiRgDHghji5ug&use_rn=1)
+
+### 帆软
+
+[计算机应届生求职](https://www.nowcoder.com/discuss/961807)
+
+### 宁波长阳科技
+
+[三方被违约，求被捞走，救命！](https://www.nowcoder.com/discuss/951325)
+
+### 联友科技
+
+临近毕业毁三方。
+
+[联友科技毁三方](https://www.nowcoder.com/discuss/960136)
+
+[深圳联友坑！](https://www.nowcoder.com/discuss/966781)
+
+### 袋鼠云
+
+6 月份毁三方，更不是人。
+
+[脉脉](https://maimai.cn/web/gossip_detail/30522743?src=app&webid=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJlZ2lkIjoiYzdlOGMyNmM2MGM5NDdiM2E4NzIwOGQ4N2NlOWU0MDYiLCJpZCI6MzA1MjI3NDMsInUiOjIzMDI3MjIxOX0.v5FqTV3Ku48x0POtKVYz4PK2RS5P_UNTq-Xb5mW4OMM&share_channel=5)
+
+### 亚信安全
+
+6 月份大规模毁三方，更不是人。
+
+[脉脉](https://maimai.cn/web/gossip_detail/30535162?src=app&webid=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJlZ2lkIjoiNTliNjI0ZDZlNDU0NDBjZWE1OGE3ZGY0YjAxZjVkMDAiLCJpZCI6MzA1MzUxNjIsInUiOjIzMDI3MjIxOX0.ITpkKuZPfZi6t4IoTskx0bzkxGlI8JY1-LBErjFKRWQ&share_channel=5)
+
+[曝光垃圾企业 亚信安全](https://www.nowcoder.com/discuss/965938)
+
+[亚信安全被爆解约应届生手段夸张：HR解散群聊、拉黑联系方式、不提赔偿……](https://m.sohu.com/a/555162724_121124668/?share_token=a0da03f0-c378-4bed-8c64-83b263caf095)
+
+[亚信安全6月解约大批次应届生](https://www.nowcoder.com/discuss/966446)
+
+[亚信安全六月份解约校招生](https://www.nowcoder.com/discuss/965032)
+
+[亚信安全6月6日毁约，今年刚上市就毁约！！！](https://www.nowcoder.com/discuss/965054)
+
+[6月8号亚信安全逼迫校招生解约，现在还有公司招人的吗，求推荐](https://www.nowcoder.com/discuss/966087)
+
+### 税友
+
+[脉脉](https://maimai.cn/web/gossip_detail/30535182?src=app&webid=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJlZ2lkIjoiNGMxMThhNzg5ZmJiNDlhNTljYmY5YTA1YjcwNDA0NDgiLCJpZCI6MzA1MzUxODIsInUiOjIzMDI3MjIxOX0._O8M7717inCiYntJXTtGy6mOr_pELcN1lppW6c3sosk&share_channel=5)
+
+### 平安各个业务线
+
+[脉脉](https://maimai.cn/web/gossip_detail/30540455?src=app&webid=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJlZ2lkIjoiMDVmMDVjMTkxZTQ5NGNmOGI5MmEzYjk5N2E5N2I2OWYiLCJpZCI6MzA1NDA0NTUsInUiOjIzMDI3MjIxOX0.00RqnrKoAsEC3xbjbjWXrSl8G1Etw23NatdW4NLzKDQ&share_channel=5)
+
+[平安毁约2022应届offer？](https://maimai.cn/web/gossip/topic/global_topic_list?topic_id=ZYECgmzI&circle_type=9&use_rn=1)
+
+### 壹药网
+
+[脉脉](https://maimai.cn/web/gossip_detail/30580060?src=app&webid=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJlZ2lkIjoiY2E3ZWRiYjNlOGQzNDIxNDk2YmJhOGVlZWQ3NTVlMDciLCJpZCI6MzA1ODAwNjAsInUiOjIzMDI3MjIxOX0.iNXLhmtFwb2UKNQ-om342nx6nd1HewK4MKDt6rqg7Is&share_channel=5)
+
+### 递四方速递
+
+[脉脉](https://maimai.cn/web/gossip_detail/30592616?src=app&webid=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJlZ2lkIjoiM2I0ODBlZjc3NTNiNGM3OTkwY2Q0NGI4MjU5MzZlZDEiLCJpZCI6MzA1OTI2MTYsInUiOjIzMDI3MjIxOX0.3cWyFbpOzYj0OfmJqpjqDC20lAcC-nPpbrBLug-pXno&share_channel=5)
